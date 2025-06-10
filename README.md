@@ -20,3 +20,7 @@ dari jeng hayoone
 - **1/2 sendok teh** gula pasir
 - Air
 - Bawang goreng
+
+## Cara Membuat
+
+1. Siapkan ayam yang sudah dicuci bersih dan dipotong sesuai selera, rebus dengan panci  presto selama 35 menit.
