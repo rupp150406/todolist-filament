@@ -24,3 +24,6 @@ dari jeng hayoone
 ## Cara Membuat
 
 1. Siapkan ayam yang sudah dicuci bersih dan dipotong sesuai selera, rebus dengan panci  presto selama 35 menit.
+2. Tuang santan dalam panci, (nyalakan apinya) masukan semua bumbu (tidak perlu ditumis karena bumbunya sudah matang), garam, kaldu jamur, ketumbar, gula, daun salam,lengkuas,aduk2 kemudian masukan ayam beserta kaldunya masak hingga mensdidih dan koreksi rasanya.
+3. Jika sudah pas masak hingga kuah agak menyusut dan ayam empuk dan meresap dengan bumbu..
+4. Matikan api dan pindahkan opor ke dalam mangkok, taburin dengan bawang goreng. Selamat mencoba💚
